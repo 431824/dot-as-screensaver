@@ -1,0 +1,1 @@
+# batyrmalik.github.io
